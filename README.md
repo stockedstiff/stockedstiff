@@ -15,7 +15,7 @@
   ‎
   
  ‎ ‎
-#   ‎ ‎Beacon of light
+#   ‎ <span style="color:#FDF4CB">***BEACON OF LIGHT***</span>
  ‎ ‎
  ‎ ‎
  ‎ ‎ ‎ ‎
