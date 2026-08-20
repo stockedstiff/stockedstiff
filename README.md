@@ -9,7 +9,8 @@
   ‎ ‎ ‎‎
   ‎ ‎ ‎‎
   ‎ ‎ ‎‎
-![Our world is filled with such beauty, don't you think?](./banner.svg)
+<img width="960" height="200" alt="38683" src="https://github.com/user-attachments/assets/33cd8f3b-f8ee-40f1-9229-e458f835deae" />
+
  ‎ ‎
   ‎
   
