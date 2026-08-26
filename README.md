@@ -18,7 +18,7 @@
   ‎
   
  ‎ ‎
-#   ‎ <span style="color:#FDF4CB">***BΣΛᏨON OF 𝕷IGHT***</span>
+#   ‎ <span style="color:#FDF4CB">***BΣΛᏨON OF 𝕳OPE***</span>
  ‎ ‎
  ‎ ‎
  ‎ ‎ ‎ ‎
