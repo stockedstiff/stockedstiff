@@ -2,26 +2,29 @@
   ‎ ‎ ‎ ‎‎
   ‎ ‎ ‎ ‎‎
   ‎ ‎ ‎‎
-  ‎ ‎ ‎ ‎‎<img width="736" height="736" alt="38679" src="https://github.com/user-attachments/assets/0d836146-a47f-417e-ba34-4fc65a2642cb" />
+  ‎ ‎ ‎ 
+
+  ‎ ‎ ‎‎<img width="736" height="245" alt="45730" src="https://github.com/user-attachments/assets/e457979f-005c-449d-9175-9953263e0ce0" />
+
+
+
+
+  
+<img width="736" height="242" alt="45732" src="https://github.com/user-attachments/assets/ee2aa96a-f73b-430f-9b90-23e6755f0547" />
 
   ‎ ‎ ‎‎
   ‎ ‎ ‎‎
   ‎ ‎ ‎‎
-  ‎ ‎ ‎‎
-  ‎ ‎ ‎‎
-<img width="960" height="200" alt="38683" src="https://github.com/user-attachments/assets/33cd8f3b-f8ee-40f1-9229-e458f835deae" />
+  ‎ ‎ ‎‎<img width="736" height="252" alt="45731" src="https://github.com/user-attachments/assets/dfe7c279-0fea-409f-a97f-18732305b596" />
+
 
  ‎ ‎
   
-  <img width="2048" height="2048" alt="38698" src="https://github.com/user-attachments/assets/5b3feeeb-b394-4667-8633-7601a866ae15" />
-
   ‎
   
  ‎ ‎
-#   ‎ <span style="color:#FDF4CB">***BΣΛᏨON OF 𝕳OPE***</span>
+#   ‎ <span style="color:#FDF4CB">***SΉO`TING ⭐***</span>
  ‎ ‎
  ‎ ‎
  ‎ ‎ ‎ ‎
- ‎ ‎<img width="736" height="308" alt="38697" src="https://github.com/user-attachments/assets/22ce8ff6-a81d-47ea-9ad4-1cfd01d8d21f" />
- ‎ ‎
  ‎ ‎
