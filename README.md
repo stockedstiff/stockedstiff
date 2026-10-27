@@ -23,8 +23,4 @@
   ‎
   
  ‎ ‎
-#  　　　　　　　　　　　　 ‎ <span style="color:#FDF4CB">***SΉO0`TING ⭐***</span>
- ‎ ‎
- ‎ ‎
- ‎ ‎ ‎ ‎
  ‎ ‎
