@@ -24,7 +24,8 @@
 
  ‎ ‎
   
-  ‎
+  🌻 ***Because you're weak*** 
+  ***I envy your weakness.***‎
 
 
 
